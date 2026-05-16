@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket advanced Automation Script: take-profit-orders & stop-loss-management, the #1 automation-script. Includes take-profit-orders and
 
 
 
